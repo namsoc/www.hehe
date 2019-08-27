@@ -1,2 +1,1 @@
-# www.hehe
-À mà thôi
+https://hacklike.nguyenkim
